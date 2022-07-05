@@ -1,1 +1,0 @@
-# deliyami.github.io
